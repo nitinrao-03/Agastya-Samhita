@@ -1,2 +1,0 @@
-# Agastya-Samhita
-IKS PROJECT
